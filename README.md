@@ -1,5 +1,5 @@
 
-[lchjxs.com](https://lchjxs.com)
+Goodbye 👋️
 
 <!--
 ### Hi there 👋
